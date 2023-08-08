@@ -21,4 +21,4 @@ Proje içerisinde ;
 
 
 
- ![Screenshot from 2023-08-08 09-51-14.png](..%2F..%2F..%2FPictures%2FScreenshots%2FScreenshot%20from%202023-08-08%2009-51-14.png)
+ ![alt text](https://drive.google.com/drive/u/0/folders/1YxF2Jrb-42n33J0syuCOSPHQAv9PI6b3)
