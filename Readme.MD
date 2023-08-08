@@ -21,4 +21,4 @@ Proje içerisinde ;
 
 
 
- ![alt text](https://drive.google.com/drive/u/0/folders/1YxF2Jrb-42n33J0syuCOSPHQAv9PI6b3)
+ ![alt text](https://drive.google.com/file/d/1aAzFV58cVzABplHOr8EePCHhZpCCOC8Y/view?usp=sharing)
